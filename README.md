@@ -1,2 +1,2 @@
-# Gamogamze9-
+# Gamogamze9
 gamogamzeozge Çetin 
